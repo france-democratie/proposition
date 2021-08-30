@@ -109,7 +109,7 @@ Rousseau disait : « Lors d’un vote législatif, le législateur (député, s�
 Plus le sujet abordé a des conséquences importantes, plus le résultat doit s'approcher de l'unanimité. »
  
 
-## 3. Mais pourquoi ? Et si ?
+## 3. Ce qui nous attend si rien de change
 
 Quitte à vous décevoir, je ne vais pas m’attarder à élaborer un quelconque plan potentiel d’une énième théorie du complot qui impliquerait l’ensemble des dirigeants des pays au niveau mondial, des grandes entreprises multinationales, industriels, laboratoires pharmaceutiques, et entreprises des nouvelles technologies surnommées GAFA, en passant en outre par les grands groupes médiatiques. Je vous laisse la liberté d’imaginer ce que vous souhaitez à ce sujet. Effort d’imagination probablement contre-productif d’élaborer la théorie d’un présent hypothétique qui servirait de toute façon le complot lui-même. De plus, nous pouvons imaginer naïvement qu’une part importante d’entre eux s’estiment oeuvrer dans une voie philosophique, humaniste et philanthropique pour qui la question démocratique, le bien commun, le respect de la vie, et l’adaptation des lois à la volonté générale est au centre de leur préoccupation.
 
